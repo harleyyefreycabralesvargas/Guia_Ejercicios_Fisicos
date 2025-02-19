@@ -35,3 +35,48 @@ Mejoras en la motivación y confianza:
 
 Lograr mejorar tiempos y rendir a alta velocidad en entrenamientos puede tener un efecto positivo en la motivación y la confianza del nadador, ayudándole a mantenerse enfocado en sus objetivos y a superar barreras mentales.
 
+instrucciones:
+1. Preparación y calentamiento:
+Antes de realizar las series de velocidad, es esencial calentar el cuerpo adecuadamente para evitar lesiones y preparar los músculos para el esfuerzo intenso.
+
+Calentamiento general (10-15 minutos):
+Comienza con un nado suave para elevar la temperatura corporal y aumentar el flujo sanguíneo a los músculos. Nadar a un ritmo cómodo durante 5-10 minutos es suficiente.
+Realiza ejercicios de movilidad articular para preparar las articulaciones y mejorar la flexibilidad, como movimientos de brazos, muñecas, tobillos y cuello.
+Luego, haz 25 a 50 metros de cada estilo (libre, espalda, pecho, mariposa) para activar los músculos principales que utilizarás en el entrenamiento de velocidad.
+2. Configuración de la serie de velocidad:
+Una vez que el calentamiento esté completo, puedes comenzar con las series de velocidad. Aquí te doy un ejemplo de cómo estructurar las series:
+
+Distancia: Generalmente, las series de velocidad se realizan en distancias cortas, como 25 o 50 metros. Si eres más experimentado, puedes nadar distancias de 75 o 100 metros.
+
+Intensidad: La clave es nadar a la máxima velocidad posible en cada repetición. Asegúrate de mantener una técnica adecuada incluso a alta velocidad.
+
+Número de repeticiones: Para una serie de velocidad, puedes hacer entre 6 a 10 repeticiones dependiendo de tu nivel y de la intensidad de la sesión. El número de repeticiones puede variar según tu objetivo.
+
+Tiempo de descanso: El descanso entre cada repetición debe ser suficiente para recuperar algo de energía, pero no tanto como para que se pierda la intensidad. En general, el tiempo de descanso será mayor al de la repetición. Un rango común es de 30 segundos a 1 minuto de descanso entre cada sprint.
+
+Ejemplo de serie de velocidad:
+Nadar 50 metros (o la distancia que prefieras) a máxima velocidad.
+Descanso de 30-45 segundos.
+Repetir entre 6 a 10 veces.
+Realizar entre 1 y 2 bloques de series, dependiendo de tu nivel de resistencia.
+3. Realización de las repeticiones:
+Posición de partida: Asegúrate de estar bien preparado antes de cada repetición. Puedes comenzar desde la pared de la piscina o el borde, dependiendo de lo que prefieras. Algunas personas eligen realizar salidas tipo "lanzamiento" o simplemente empujarse de la pared.
+
+Técnica en cada repetición:
+
+Mantén la técnica durante cada repetición, incluso mientras nadas a alta velocidad. Si sientes que la técnica se empieza a deteriorar, intenta reducir ligeramente la velocidad, pero sigue manteniendo el esfuerzo.
+Enfócate en la eficiencia. Mantén una postura recta en el agua, no te inclines demasiado hacia adelante ni hacia atrás, y procura hacer brazadas largas y efectivas. No sobreexijas tus movimientos, ya que la fatiga puede disminuir la eficiencia.
+Respiración: Aunque la respiración puede volverse difícil debido a la alta intensidad, trata de mantener una respiración controlada y eficiente. Durante los sprints, intenta respirar de manera más corta y rápida sin perder el ritmo.
+
+4. Descanso entre las repeticiones:
+Recuperación activa: Si sientes que necesitas recuperar completamente entre las repeticiones, puedes optar por un descanso completo. Sin embargo, si deseas trabajar en la resistencia, puedes nadar a baja intensidad durante el descanso (nado suave o recuperación activa).
+No sobrecargar: Si te sientes demasiado fatigado, no dudes en tomar un descanso más largo. El objetivo es nadar a la máxima intensidad en cada repetición, por lo que una recuperación adecuada es esencial.
+5. Enfriamiento:
+Al final de la serie de velocidad, realiza un enfriamiento para reducir gradualmente la frecuencia cardíaca y evitar lesiones.
+
+Enfriamiento suave (5-10 minutos): Nadar a baja intensidad con un enfoque en la relajación muscular. Puedes nadar de 200 a 400 metros de forma tranquila, combinando diferentes estilos de nado.
+
+Estiramiento: Después del enfriamiento, realiza estiramientos para los hombros, cuádriceps, isquiotibiales y pantorrillas, que son las áreas que más trabajan durante las series de velocidad en natación.
+
+6. Frecuencia de entrenamiento:
+Las series de velocidad no deben realizarse todos los días, ya que son exigentes para el cuerpo. Se recomienda realizar este tipo de entrenamiento 1 a 3 veces por semana, dependiendo de tus objetivos y nivel de entrenamiento. 
