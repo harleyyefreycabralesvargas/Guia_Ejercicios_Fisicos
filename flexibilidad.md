@@ -110,4 +110,40 @@ Estiramiento de flexores de cadera (estiramiento de la paloma):
 Siéntate en el suelo y cruza una pierna frente a ti, mientras mantienes la otra pierna extendida hacia atrás.
 Inclínate hacia adelante para sentir el estiramiento en la cadera de la pierna que está doblada.
 Mantén la posición por 20-30 segundos y cambia de lado.
+Consejos para estirarse correctamente:
+Calienta antes de estirarte: Antes de estirar, es fundamental calentar el cuerpo con ejercicios cardiovasculares ligeros (como caminar o trotar suave) durante 5 a 10 minutos. Esto aumenta la temperatura de los músculos y la circulación sanguínea, reduciendo el riesgo de lesiones al estirar.
 
+Estira de manera controlada: Realiza los estiramientos de manera suave y controlada. No te apresures, ni utilices rebotes para estirar, ya que esto puede provocar lesiones al generar un estrés repentino en los músculos.
+
+Escucha a tu cuerpo: Estirar debe ser una experiencia cómoda y sin dolor. Si sientes dolor (agudo o punzante), detente inmediatamente y ajusta tu postura. La sensación debe ser de tirón o tensión suave, no de incomodidad o dolor.
+
+Mantén la postura durante 20-30 segundos: Sostén cada estiramiento de forma estática durante 20 a 30 segundos. Esto es lo ideal para permitir que el músculo se alargue de forma efectiva. Si estiras durante más tiempo, puedes aumentar el riesgo de tensiones innecesarias.
+
+No rebotes: El "rebote" es un movimiento rápido y repetido en un estiramiento, pero esta técnica puede causar microlesiones en los músculos y tejidos conectivos. Mantén el estiramiento de manera continua y controlada.
+
+Realiza estiramientos dinámicos antes del ejercicio: Si estás a punto de hacer ejercicio, los estiramientos dinámicos son más apropiados. Estos movimientos suaves y controlados (como balancear las piernas) preparan los músculos para la actividad física sin poner demasiada presión sobre ellos.
+
+Estira ambos lados del cuerpo: Asegúrate de estirar ambos lados del cuerpo de manera equilibrada para evitar desequilibrios musculares. Si estiras un lado, repite el estiramiento en el otro.
+
+Mantén una respiración profunda y relajada: La respiración profunda mientras te estiras ayuda a relajarte y mejora la efectividad del estiramiento. Evita contener la respiración; exhala mientras profundizas el estiramiento y respira tranquilamente durante la postura.
+
+Precauciones al estirarse:
+Evita estiramientos dolorosos: El dolor agudo es una señal de que algo no está bien. Si sientes dolor al estirarte, es una señal de que estás forzando demasiado. Deja de estirarte y ajusta la postura para evitar lesiones.
+
+No estires de manera brusca: El estiramiento debe ser gradual, sin movimientos bruscos ni forzados. Hacer un estiramiento de manera muy rápida puede causar microdesgarros o tensiones musculares.
+
+Estiramientos después del ejercicio, no antes de alta intensidad: Si estás haciendo un ejercicio de alta intensidad o fuerza, evita estiramientos demasiado largos o intensos antes de entrenar, ya que podría reducir temporalmente tu rendimiento muscular. En su lugar, haz estiramientos dinámicos y deja los estiramientos estáticos para después de la actividad física.
+
+Presta atención a las articulaciones: Los estiramientos deben centrarse en los músculos, no en las articulaciones. Evita estirar las articulaciones más allá de su rango natural de movimiento. Forzar las articulaciones puede provocar lesiones.
+
+No estires cuando estés lesionado: Si tienes una lesión muscular o articular, es importante evitar estiramientos hasta que el área afectada se haya recuperado adecuadamente. Estirar un músculo lesionado puede agravar la condición y retrasar la recuperación.
+
+Evita los estiramientos si tienes enfermedades o condiciones médicas: Si tienes condiciones de salud preexistentes (como artritis, enfermedades cardíacas, o problemas musculares graves), consulta con un médico antes de hacer estiramientos. Algunas condiciones pueden requerir modificaciones en los estiramientos para evitar complicaciones.
+
+No te sobreesfuerces: La flexibilidad y el rango de movimiento mejoran con el tiempo, pero no puedes forzar un músculo a ser más flexible de manera inmediata. El progreso es gradual, y forzar un estiramiento puede provocar desgarros o distensiones musculares.
+
+No estires si estás frío: Nunca hagas estiramientos intensos cuando los músculos están fríos, ya que esto puede aumentar el riesgo de lesiones. Siempre realiza un calentamiento adecuado antes de estirarte para asegurar que los músculos estén listos para el estiramiento.
+
+Estiramientos durante el embarazo: Si estás embarazada, consulta con tu médico antes de realizar cualquier rutina de estiramientos. A medida que el embarazo avanza, algunos estiramientos pueden no ser apropiados debido a los cambios en el cuerpo.
+
+Presta atención a la alineación del cuerpo: Durante los estiramientos, asegúrate de mantener una buena postura. Evita encorvar la espalda o forzar las articulaciones. Mantén el cuerpo alineado para evitar tensión innecesaria.
