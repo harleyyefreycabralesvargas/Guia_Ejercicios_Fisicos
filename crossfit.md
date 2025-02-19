@@ -63,3 +63,58 @@ Una vez que la barra esté cerca del suelo, asegúrate de recuperar la posición
 5. Repeticiones:
 Realiza el número de repeticiones y series indicadas en tu rutina de entrenamiento. Recuerda siempre hacer el movimiento de manera controlada y enfocada en la técnica.
 
+Consejos para Realizar un Peso Muerto Correctamente:
+Mantén la espalda recta:
+
+La postura es clave en el peso muerto. Siempre asegúrate de mantener la espalda neutral, evitando curvarla o redondearla. La curvatura en la zona lumbar puede causar lesiones serias.
+Imagina que tu columna vertebral es una barra rígida que no debe doblarse.
+Activa tu core (zona abdominal y lumbar):
+
+Antes de levantar el peso, aprieta el abdomen (como si fueras a recibir un golpe) para proteger tu espalda baja.
+Esto estabiliza la columna vertebral y reduce el riesgo de lesiones en la zona lumbar.
+Mira al frente, no hacia abajo:
+
+Mantén la mirada al frente o ligeramente hacia abajo, asegurándote de no mirar hacia el techo o hacia el suelo. Esto te ayudará a mantener una alineación correcta de la columna durante todo el movimiento.
+Usa el agarre adecuado:
+
+Si eres principiante, comienza con un agarre prono (ambas palmas hacia abajo). Si el peso es más pesado y tienes dificultades con el agarre, puedes usar un agarre mixto (una palma hacia arriba y la otra hacia abajo) para más seguridad.
+Si el agarre se convierte en un limitante, puedes considerar el uso de muñequeras o guantes.
+Mantén la barra cerca del cuerpo:
+
+La barra debe rozar tus piernas en todo momento. Mantener la barra cerca de tu cuerpo reduce la tensión innecesaria en la espalda y ayuda a mantener el equilibrio.
+Empuja con las piernas, no con la espalda:
+
+La potencia en el levantamiento debe provenir principalmente de las piernas (cuádriceps, glúteos e isquiotibiales). Evita usar solo la espalda para levantar la barra.
+Empuja con los talones al levantar el peso, no con los dedos de los pies.
+Desciende de manera controlada:
+
+No dejes que la barra caiga rápidamente. Baja el peso de manera controlada, asegurándote de que tu espalda permanezca recta y que las caderas se muevan primero hacia atrás al descender.
+Al bajar, asegúrate de sentir los músculos de las piernas y caderas trabajando, no solo la espalda.
+Comienza con un peso moderado:
+
+Si eres nuevo en el peso muerto, comienza con pesos ligeros para familiarizarte con la técnica. Evita cargar demasiado peso hasta que tengas una técnica sólida.
+Precauciones al Realizar el Peso Muerto:
+Evita levantar peso con la espalda redondeada:
+
+Este es uno de los errores más comunes y peligrosos. Levantar con la espalda redondeada pone una presión excesiva en la columna vertebral y aumenta el riesgo de lesiones graves, especialmente en la zona lumbar. Siempre debe estar recta y alineada.
+No arquear las caderas prematuramente:
+
+Es importante no mover las caderas hacia adelante antes de que las piernas se extiendan completamente. Esto puede forzar la espalda baja y generar una técnica incorrecta. Asegúrate de que las caderas y los hombros suban juntos de manera sincronizada.
+No sobrecargar el peso sin dominar la técnica:
+
+Nunca levantes más peso del que puedes manejar con buena técnica. Comienza con pesos más ligeros y gradualmente aumenta la carga solo cuando tengas control total sobre el movimiento y la postura.
+Evita la fatiga excesiva:
+
+Si sientes que tu forma está empezando a desmejorar o que estás demasiado fatigado para mantener la técnica correcta, es mejor descansar y reducir el peso. El sobreentrenamiento y la fatiga aumentan el riesgo de lesiones.
+Mantén las rodillas alineadas:
+
+Las rodillas deben estar ligeramente flexionadas durante todo el levantamiento, pero no deben doblarse excesivamente ni moverse hacia adentro. Asegúrate de que tus rodillas sigan la dirección de tus pies y no se desvíen.
+Evita el "rebote" al levantar el peso:
+
+No dejes que la barra rebote en el suelo entre repeticiones, ya que esto puede causar tensión innecesaria en las articulaciones. Cada repetición debe ser controlada desde el inicio hasta el final.
+No levantes demasiado rápido ni demasiado lento:
+
+La velocidad es importante. Levanta la barra de manera controlada y evita hacer movimientos bruscos. Evita también levantar demasiado lento, ya que esto puede interferir con la activación correcta de los músculos.
+Usa un calzado adecuado:
+
+Asegúrate de usar zapatos planos (como zapatillas de levantamiento o incluso sin zapatos) para tener una base estable al levantar el peso. Evita los zapatos con mucha amortiguación, ya que pueden afectar tu estabilidad y control.
