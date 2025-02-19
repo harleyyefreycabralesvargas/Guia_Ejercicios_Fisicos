@@ -58,3 +58,45 @@ Evita balancearte: Mantén el torso recto y controla el movimiento en todo momen
 No uses el impulso: Las dominadas deben ser realizadas de manera controlada. No uses el impulso de las piernas o el cuerpo para subir.
 Aumenta la dificultad progresivamente: Si eres principiante y no puedes hacer una dominada completa, puedes comenzar con dominadas asistidas (con banda elástica o en una máquina) o dominadas negativas (enfocándote solo en la fase de descenso).
 
+Consejos al hacer dominadas:
+Calentamiento previo:
+
+Antes de realizar dominadas, realiza un buen calentamiento para preparar los músculos y articulaciones. Dedica unos minutos a movimientos dinámicos y estiramientos suaves, especialmente para los hombros, muñecas, espalda y bíceps.
+Controla el movimiento:
+
+Evita hacer el movimiento de forma brusca o utilizando impulso. El control es fundamental para activar correctamente los músculos. Evita balancear las piernas o el cuerpo para "ayudarte" a subir.
+Realiza tanto la fase de subida como la de bajada de forma controlada. La fase descendente (bajada) es tan importante como la de subida, ya que ayuda a mejorar la fuerza en los músculos de la espalda y los brazos.
+Postura adecuada:
+
+Mantén el cuerpo recto durante todo el ejercicio, sin arquear la espalda o dejar que tus hombros se levanten demasiado. Mantén el core activado (abdomen y glúteos apretados) para evitar que el cuerpo se balancee o se descontrole.
+Si sientes que te estás arqueando hacia atrás, ajusta tu posición y asegúrate de que el torso y las piernas estén alineados.
+Agarre adecuado:
+
+Coloca las manos un poco más anchas que los hombros y asegúrate de tener un buen agarre en la barra. Si es posible, usa un agarre neutral o supinado (palmas hacia ti) si tienes problemas con la muñeca en el agarre pronado.
+Si tu agarre se siente incómodo o flojo, trata de usar guantes o tiras de muñeca para mejorar el soporte y evitar que tus manos resbalen.
+Respiración constante:
+
+Mantén una respiración fluida durante el ejercicio. Exhala mientras subes (cuando te acercas a la barra) e inhala mientras desciendes (cuando bajas el cuerpo).
+La respiración constante ayudará a mantener el ritmo y la energía durante el ejercicio.
+Precauciones al hacer dominadas:
+Evita el uso excesivo de impulso:
+
+Si usas el impulso de las piernas o te balanceas, no solo perderás eficacia en el ejercicio, sino que también aumentarás el riesgo de lesión en los hombros, espalda y muñecas. Asegúrate de usar la fuerza de los músculos de la parte superior del cuerpo para realizar el movimiento.
+No te excedas en las repeticiones:
+
+Si eres principiante, es mejor comenzar con un número moderado de repeticiones (por ejemplo, 3 series de 3-5 repeticiones) y aumentar gradualmente. Si intentas hacer demasiadas repeticiones sin la fuerza necesaria, podrías fatigarte demasiado rápido y aumentar el riesgo de lesión.
+Escucha a tu cuerpo:
+
+Si sientes dolor en los hombros, muñecas o espalda baja, detente de inmediato. El dolor no es parte de la rutina de entrenamiento; un ligero cansancio es normal, pero si sientes incomodidad o dolor, es importante no continuar para evitar lesiones.
+Técnica adecuada en lugar de cantidad:
+
+Asegúrate de hacer cada repetición con la forma correcta, incluso si eso significa hacer menos repeticiones. La calidad del movimiento siempre debe ser la prioridad sobre la cantidad.
+No sobrecargues demasiado rápido:
+
+Si estás entrenando dominadas como parte de tu rutina, no intentes sobrecargar tu cuerpo con demasiadas series o con pesas adicionales sin tener una base de fuerza adecuada. La progresión es clave. Si puedes hacer varias dominadas sin esfuerzo, entonces comienza a añadir variaciones, como las dominadas con peso, pero hazlo de manera progresiva.
+Evita bloqueos en los codos:
+
+Al bajar completamente los brazos, asegúrate de no bloquear los codos de forma brusca. Esto puede causar tensión innecesaria en las articulaciones. Deja una ligera flexión en los codos incluso cuando llegues a la parte inferior del movimiento.
+Usa un equipo adecuado:
+
+Si te resulta difícil realizar dominadas completas, puedes usar bandas de resistencia o una máquina de dominadas asistidas para ayudarte a levantar el cuerpo. Esto te permitirá trabajar la forma mientras desarrollas fuerza.
