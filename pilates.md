@@ -59,3 +59,49 @@ Vuelve a la posición inicial acostado sobre el suelo, con los brazos extendidos
 Repeticiones:
 
 Realiza entre 5 a 10 repeticiones, dependiendo de tu nivel de flexibilidad y fuerza. A medida que adquieras más control, puedes aumentar el número de repeticiones o la duración del ejercicio.
+
+Consejos para realizar el Roll Up correctamente:
+Mantén el control del movimiento:
+
+Evita usar impulso. El Roll Up debe ser lento y controlado, especialmente cuando desciendes. Al hacerlo de manera controlada, activarás mejor los músculos abdominales y evitarás lesiones en la espalda.
+Activa el core:
+
+Mantén los músculos del abdomen activados en todo momento. Esto te ayudará a proteger la columna y a realizar el ejercicio de manera efectiva. Al hacer el Roll Up, imagina que estás empujando hacia abajo con el abdomen, lo que permitirá que la columna se desenrolle de manera fluida.
+Conciencia en la respiración:
+
+Inhala profundamente cuando te prepares para comenzar el movimiento y cuando regreses a la posición inicial. Exhala mientras te levantas para activar mejor el abdomen y mantener el control. La respiración constante es clave para la fluidez del ejercicio.
+No fuerces el estiramiento:
+
+Al llegar a la parte más baja del movimiento (cuando estés alcanzando los pies), no te sientas presionado a forzar el estiramiento. Estira solo lo que tu cuerpo te permita sin causar dolor. La flexibilidad mejora con el tiempo, así que empieza poco a poco.
+Mantén las piernas estiradas o ligeramente dobladas:
+
+Si tienes dificultad para mantener las piernas estiradas debido a la rigidez en las caderas o los isquiotibiales, puedes doblar ligeramente las rodillas para facilitar el movimiento. Lo más importante es mantener el control en la columna y en el abdomen, no la rigidez de las piernas.
+Relaja el cuello:
+
+Cuando subes, asegúrate de que tu cabeza y cuello estén alineados con la columna. Evita forzar el cuello mirando hacia adelante de manera brusca. Mantén una ligera flexión del cuello para evitar cualquier tensión en la zona cervical.
+Hazlo de manera progresiva:
+
+Si eres principiante, comienza con pocas repeticiones (3 a 5) y ve aumentando gradualmente a medida que desarrollas fuerza y flexibilidad. No te exijas demasiado al principio.
+Precauciones al realizar el Roll Up:
+Evita el dolor en la espalda baja:
+
+Si sientes dolor o incomodidad en la zona baja de la espalda, es una señal de que tu postura podría estar equivocada. Asegúrate de activar bien los abdominales para proteger la columna. Si el dolor persiste, detén el ejercicio y evalúa si estás usando la técnica correcta.
+Si tienes problemas en la espalda baja o hernia discal, consulta a un fisioterapeuta o un profesional de la salud antes de intentar este ejercicio.
+No sobrecargues el cuello:
+
+Aunque el Roll Up requiere que muevas la cabeza hacia adelante, evita que tu cuello se tense o se incline bruscamente. El cuello debe seguir la alineación natural de la columna. No tires de la cabeza con las manos, ya que esto puede causar tensión en el cuello.
+No uses impulso:
+
+El Roll Up debe ser un movimiento fluido y controlado. Evita balancearte o impulsarte con los brazos para levantarte. Si te cuesta realizar el ejercicio, trata de modificarlo manteniendo las rodillas ligeramente dobladas o realizando movimientos más pequeños y graduales.
+Flexibilidad y alcance:
+
+Si no puedes llegar a los pies, está bien. No te preocupes por la profundidad del estiramiento al principio. La flexibilidad mejora con la práctica, pero siempre escucha a tu cuerpo. Si intentas alcanzar los pies demasiado rápido, podrías estirarte en exceso y aumentar el riesgo de lesión.
+Desciende con control:
+
+Al regresar a la posición inicial, asegúrate de desenrollar la columna vértebra por vértebra. Evita hacer el movimiento rápidamente, ya que esto puede generar tensión innecesaria en la parte baja de la espalda.
+Problemas de caderas o rodillas:
+
+Si tienes problemas en las caderas o las rodillas, modifica el ejercicio manteniendo una ligera flexión en las piernas. El objetivo es hacer el movimiento de manera que no cause dolor en esas articulaciones. Si el dolor persiste, es mejor consultar a un especialista.
+Evita realizarlo si estás embarazada:
+
+Las mujeres embarazadas deben evitar este ejercicio o consultar a un médico antes de realizarlo, ya que la presión sobre el abdomen puede ser incómoda y riesgosa en algunas etapas del embarazo.
